@@ -1,1 +1,1 @@
-# KaroStudioHQ.github.io
+# KaroStudios.github.io
